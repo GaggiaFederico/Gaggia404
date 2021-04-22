@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Federico Gaggia  or @Gaggia404 in GitHub
+- 👀 I’m interested in everything about coding 
+- 📫 How to reach me email: federico.gaggia18@gmail.com
